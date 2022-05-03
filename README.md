@@ -1,4 +1,4 @@
-# Ziling(Lizzy) Li
+# zilingli1
 ### BAIS & Finance student
 ### Tippie College of Business, The University of Iowa
 Pronouns: she/her/hers
